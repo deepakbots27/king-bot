@@ -168,7 +168,7 @@ Author / Creator | Editor
 
 Don't forget to give it a star 🌟
 
-Best regards: ZIM-BOTS
+Best regards: DEEPAK-BOTS
 
 
 
